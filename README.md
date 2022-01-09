@@ -1,0 +1,2 @@
+# scort
+Contact Dr  for organic herbal Medicine for diseases, COPD,HSV 1&amp;2 and cold sores, herpes etc. He helped me get rid of my HSV after using his wonderful herbal medicine for just 14 days. You can also place an order for any kind of herbal medicine to cure any kind of illness totally from the body contact Dr Successful. On WhatsApp: +2349054910629 or via email drsuccessfulcuringhome@gmail.com Or visit his Facebook page: https://www.facebook.com/priestsuccessful 
